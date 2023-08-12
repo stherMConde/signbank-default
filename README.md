@@ -1,5 +1,4 @@
 # signbank-default
 
-[[Now in Android: 55]
-(https://i.ytimg.com/vi/Hc79sDi3f0U/maxresdefault.jpg)] 
-(https://www.youtube.com/watch?v=Hc79sDi3f0U "Now in Android: 55")   
+
+[Uploading Untitled_ Aug 11, 2023 2_55 PM.webm…]()
