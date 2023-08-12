@@ -1,4 +1,4 @@
 # signbank-default
 
 
-[Uploading Untitled_ Aug 11, 2023 2_55 PM.webm…]()
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/v=w-VeTkzUMOg/0.jpg)](https://www.youtube.com/watch?v=w-VeTkzUMOg)
